@@ -1,4 +1,4 @@
-#  
+#  blox fruits advanced Scripts is the best blox fruits Script, featuring god mode and auto-collect. Safe and powerful for all your needs.
 
 
 
